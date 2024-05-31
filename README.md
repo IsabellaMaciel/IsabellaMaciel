@@ -29,3 +29,5 @@ Além disso, por acreditar em lifelong learning, mantenho-me sempre atualizada s
 Sinta-se à vontade para conversar comigo por aqui, espero que tenhamos boas trocas de conhecimentos.
 
 > "We can only see a short distance ahead, but we can see plenty there that needs to be done." - Alan Turing
+
+[Conecte-se comigo no LinkedIn](https://www.linkedin.com/in/isabella-maciel-br/)
